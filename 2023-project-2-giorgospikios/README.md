@@ -1,1 +1,1 @@
-Εκφώνηση: https://k08.chatzi.org/projects/project2/
+Εκφώνηση: https://k08.chatzi.org/2023/projects/project2/
